@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Davidone11
+- 🎱 Sports I practiced: swimming ( for 6 years), basketball (for 2 years), table tennis (2 years), Biiliards ( 3 years ) and  chess (7 years).
+- 👍 Things I like: Math, Phyton, playing chess and Billiards as for food is sushi, I like fish!
+- 📘 I'm currently in elementary school, my favorite subject is math and maybe geography
+- 🏀 I like basketbal a lot, mostly when I can do a Layup/Dunk.
+- That is pretty much all, byee! 👋
